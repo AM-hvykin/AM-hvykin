@@ -28,3 +28,7 @@ i feel like i have osdd for some reason, but it might just be because of bipolar
 ➤ 𝐅𝐀𝐑𝐄𝐖𝐄𝐋𝐋𝐒.
 
 • 𝑤𝑒𝑙𝑙, i think this is it. kinda took me awhile to write. have a good day to whoevers reading this!
+
+➤ ᗴ᙭Tᖇᗩ ՏTᑌᖴᖴ
+
+my hvykins; el cognito sum i think therefore i AM (ihnmaims), diva (pddb), caine (tadc), 1x1x1x1/shedletsky/telamon (roblox), bassie (dw), skeet (itzskeet_playz ROBLOX ARG), akita neru (fanloid), v1 (ultrakill), more to be added since i cant seem to remember but there were definitely more IM SURE OF THAT.
