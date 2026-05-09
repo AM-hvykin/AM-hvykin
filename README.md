@@ -10,6 +10,8 @@
 
 ☯ i developed trust issues, attachment issues, CPTSD and transphobia from my old friends i met back in 2023 or late 2022. i had friends that used the fact they were trans to guilt trip and manipulate me. im not proud to say i have transphobia, i just recently decided to call myself 'transphobic' and ive been denying that i could NEVER been transphobic. transphobia is a bad thing, and i hope to recover.
 
+​᭄ I have dementia. ..yeah thats— thats literally it. i cant seem to remember the reason but i know i have dementia and i was disgnosed with it after schizophrenia. luckily for ONCE, im almost fully healed from schizophrenia. i rarely see hallucinations / hear things now. for dementia, uhh.. its the most severe one. my dementia somehow overpowers my other mental illnesses. sorry if i forget about you or stuff you say, i cant control it.
+
 ✷ i make personas / alter egos, and draw them in my free time. im not too sure if i should call this coping, or if its because of my bipolar. i heard that some mental illnesses had similar symptons, such as borderline personality disorder, bipolar, DID, etc. (P.S. im not too cultured nor know a lot of stuff about DID.. im trying to understand Systems better, because i have a friend that has OSDD.)
 i feel like i have osdd for some reason, but it might just be because of bipolar. i wont talk much about Systems, i dont know much stuff about it.
 
