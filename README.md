@@ -1,5 +1,3 @@
-#Will you wake up tomorrow.
-
 • нєℓℓσ! 𝚒 𝚠𝚒𝚕𝚕 𝚋𝚎 𝚠𝚛𝚒𝚝𝚒𝚗𝚐 𝚜𝚝𝚞𝚏𝚏 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎 𝚑𝚎𝚛𝚎.
 
 ✦ AIE is an online persona name i came up with back in early 2020, during covid. back then, i was an amateur new artist and i SUCKED SO BAD at drawing, so now since its been 6 years, i think im now better at drawing. also, AIE is just a shortened name of my real name.
