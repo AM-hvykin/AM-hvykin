@@ -31,4 +31,4 @@ i feel like i have osdd for some reason, but it might just be because of bipolar
 
 ➤ ᗴ᙭Tᖇᗩ ՏTᑌᖴᖴ
 
-my hvykins; el cognito sum i think therefore i AM (ihnmaims), diva (pddb), caine (tadc), 1x1x1x1/shedletsky/telamon (roblox), bassie (dw), skeet (itzskeet_playz ROBLOX ARG), akita neru (fanloid), v1 (ultrakill), more to be added since i cant seem to remember but there were definitely more IM SURE OF THAT.
+my hvykins; artful/jean degare fromage (dod), sean (seildirectory), jx1dx1 (ihasafacelulz), rgdy_ann (ihasafacelulz), el cognito sum i think therefore i AM (ihnmaims), diva (pddb), caine (tadc), 1x1x1x1/shedletsky/telamon (roblox), bassie (dw), skeet (itzskeet_playz ROBLOX ARG), akita neru (fanloid), v1 (ultrakill), more to be added since i cant seem to remember but there were definitely more IM SURE OF THAT.
