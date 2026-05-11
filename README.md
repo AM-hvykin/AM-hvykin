@@ -1,43 +1,83 @@
 So much I wanna tell you, but you need to go away
+
 I love you with my whole heart, but it aches, it fucking aches
+
 Step back and give me space, or God knows what the fuck I'll say
+
 This shit gets old so fast, but I go through it every day
+
 Why does it hurt to love you?
+
 I don't know
+
 Wh-why does it hurt to love you?
+
 I-I-I-I don't know
+
 Why does it hurt to love you?
+
 I don't know
+
 Wh-why does it hurt to love you?
+
 I-I-I-I don't know
+
 Why does it hurt to love you?
+
 Go away
+
 Wh-why does it hurt to love you?
+
 Go-go-go away
+
 Why does it hurt to love you?
+
 Go away
+
 Wh-why does it hurt to love you?
+
 I mean it, go away
+
 Keep falling into circles, I'll cut off my fucking head
+
 I can't remember anything of what I must've said
+
 If pain is beauty, what the fuck does this shit mean instead?
+
 I feel two thousand feelings, and a thousand are regret
+
 If this shit is so wrong, then why the fuck can I not stop?
+
 Why am I wired to keep making everything my fault?
+
 I try to be a good girl, but that isn't in the cards
+
 I'll self-destruct, blow up our life, leave everything in shards
+
 I'm living in delusions and that's not a way to live
+
 Keep asking me for more, when I have nothing left to give
+
 If I keep going now, then I'm just bound to fall apart
+
 Just useless dreams and tears, and forever broken hearts
+
 The pressure gets to me too much, I always fucking care
+
 If you were in my shoes, then you'd pull out your fucking hair
+
 Whenever I see you, I have so much I wanna share
+
 But I'll sit here all bottled up, completely unaware
+
 So much I wanna tell you, but you need to go away
+
 I love you with my whole heart, but it aches, it fucking aches
+
 Step back and give me space, or God knows what the fuck I'll say
+
 This shit gets old so fast, but I go through it every day
+
 
 (pinterest acc; https://pin.it/5sK7Poc5G)
 
