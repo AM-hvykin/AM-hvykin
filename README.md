@@ -1,3 +1,6 @@
+(13/5/2026, currently distancing myself away from everyone.)
+__________
+
 So much I wanna tell you, but you need to go away
 
 I love you with my whole heart, but it aches, it fucking aches
