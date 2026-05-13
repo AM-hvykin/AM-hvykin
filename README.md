@@ -1,4 +1,4 @@
-(13/5/2026, currently distancing myself away from everyone.)
+( 13/5/2026 not in the mood. struggling with SH. )
 __________
 
 So much I wanna tell you, but you need to go away
@@ -98,7 +98,7 @@ __________
 
 ☯ i developed trust issues, attachment issues, CPTSD and transphobia from my old friends i met back in 2023 or late 2022. i had friends that used the fact they were trans to guilt trip and manipulate me. im not proud to say i have transphobia, i just recently decided to call myself 'transphobic' and ive been denying that i could NEVER been transphobic. transphobia is a bad thing, and i hope to recover.
 
-​᭄ I have dementia. ..yeah thats— thats literally it. i cant seem to remember the reason but i know i have dementia and i was disgnosed with it after schizophrenia. luckily for ONCE, im almost fully healed from schizophrenia. i rarely see hallucinations / hear things now. for dementia, uhh.. its the most severe one. my dementia somehow overpowers my other mental illnesses. sorry if i forget about you or stuff you say, i cant control it.
+​᭄ I have dementia. ..yeah thats— thats literally it. i cant seem to remember the reason but i know i have dementia and i was diagnosed with it after schizophrenia. luckily for ONCE, im almost fully healed from schizophrenia. i rarely see hallucinations / hear things now. for dementia, uhh.. its the most severe one. my dementia somehow overpowers my other mental illnesses. sorry if i forget about you or stuff you say, i cant control it.
 
 ➤ 𝐂𝐎𝐏𝐈𝐍𝐆 & 𝐇𝐎𝐁𝐁𝐈𝐄𝐒.
 
@@ -115,4 +115,4 @@ i feel like i have osdd for some reason, but it might just be because of bipolar
 
 ➤ ᗴ᙭Tᖇᗩ ՏTᑌᖴᖴ
 
-my hvykins; artful/jean degare fromage (dod), sean (seildirectory), jx1dx1 (ihasafacelulz), rgdy_ann (ihasafacelulz), el cognito sum i think therefore i AM (ihnmaims), diva (pddb), caine (tadc), 1x1x1x1/shedletsky/telamon (roblox), bassie (dw), skeet (itzskeet_playz ROBLOX ARG), akita neru (fanloid), v1 (ultrakill), more to be added since i cant seem to remember but there were definitely more IM SURE OF THAT.
+my hvykins; artful/jean degare fromage (dod), medulla (seildirectory), sean (seildirectory), jx1dx1 (ihasafacelulz), rgdy_ann (ihasafacelulz), el cognito sum i think therefore i AM (ihnmaims), diva (pddb), caine (tadc), 1x1x1x1/shedletsky/telamon (roblox), bassie (dw), skeet (itzskeet_playz ROBLOX ARG), akita neru (fanloid), v1 (ultrakill), chara (undertale), flow ey (undertale), more to be added since i cant seem to remember but there were definitely more IM SURE OF THAT.
