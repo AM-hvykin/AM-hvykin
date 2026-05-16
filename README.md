@@ -1,4 +1,4 @@
-( 13/5/2026 not in the mood. struggling with SH. )
+@confettihearts i LOVE yuo (platonically)
 __________
 
 So much I wanna tell you, but you need to go away
