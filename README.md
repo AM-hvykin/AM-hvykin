@@ -3,85 +3,65 @@ Im clingy i dont deserve friends
 @confettihearts i LOVE yuo (platonically)
 __________
 
-So much I wanna tell you, but you need to go away
+Pills in the morning, sleep 'til the evening
 
-I love you with my whole heart, but it aches, it fucking aches
+Life is a dream
 
-Step back and give me space, or God knows what the fuck I'll say
+I'd rather let time march on without me
 
-This shit gets old so fast, but I go through it every day
+Living is boring, dying's easy
 
-Why does it hurt to love you?
+Baby, can't you see?
 
-I don't know
+I'm a mess, I'm everything you made me
 
-Wh-why does it hurt to love you?
+And I see every hypocrite who painted wounds on my skin
 
-I-I-I-I don't know
+You make me sick, sick, sick
 
-Why does it hurt to love you?
+And I know everything you did, reliving all your old sins
 
-I don't know
+You make me sick, sick, sick
 
-Wh-why does it hurt to love you?
+And I thought I knew all your tricks, but that's not true now, is it?
 
-I-I-I-I don't know
+You make me sick, sick, sick
 
-Why does it hurt to love you?
+You make me sick, sick, sick, sick, sick
 
-Go away
+You make me sick, sick, sick, sick
 
-Wh-why does it hurt to love you?
+You make me sick, sick, sick
 
-Go-go-go away
+Pills in the morning, sleep 'til the evening
 
-Why does it hurt to love you?
+Life is a dream
 
-Go away
+I'd rather let time march on without me
 
-Wh-why does it hurt to love you?
+Living is boring, dying's easy
 
-I mean it, go away
+Baby, can't you see?
 
-Keep falling into circles, I'll cut off my fucking head
+I'm a mess, I'm everything you made me
 
-I can't remember anything of what I must've said
+But every now, and then I find an ugly voice from inside whispering promises
 
-If pain is beauty, what the fuck does this shit mean instead?
+"I'll be your little hedonist and give you all my weakness"
 
-I feel two thousand feelings, and a thousand are regret
+Aren't we just sick, sick, sick?
 
-If this shit is so wrong, then why the fuck can I not stop?
+Pills in the morning, sleep 'til the evening
 
-Why am I wired to keep making everything my fault?
+Life is a dream
 
-I try to be a good girl, but that isn't in the cards
+I'd rather let time march on without me
 
-I'll self-destruct, blow up our life, leave everything in shards
+Living is boring, dying's easy
 
-I'm living in delusions and that's not a way to live
+Baby, can't you see?
 
-Keep asking me for more, when I have nothing left to give
-
-If I keep going now, then I'm just bound to fall apart
-
-Just useless dreams and tears, and forever broken hearts
-
-The pressure gets to me too much, I always fucking care
-
-If you were in my shoes, then you'd pull out your fucking hair
-
-Whenever I see you, I have so much I wanna share
-
-But I'll sit here all bottled up, completely unaware
-
-So much I wanna tell you, but you need to go away
-
-I love you with my whole heart, but it aches, it fucking aches
-
-Step back and give me space, or God knows what the fuck I'll say
-
-This shit gets old so fast, but I go through it every day
+I'm a mess, I'm everything you made me
 __________
 
 (pinterest acc; https://pin.it/5sK7Poc5G)
