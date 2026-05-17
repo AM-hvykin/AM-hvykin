@@ -1,3 +1,5 @@
+Im clingy i dont deserve friends
+
 @confettihearts i LOVE yuo (platonically)
 __________
 
