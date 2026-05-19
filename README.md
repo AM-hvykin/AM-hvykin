@@ -1,6 +1,6 @@
 Im clingy i dont deserve friends
 
-@confettihearts i LOVE yuo (platonically)
+@chexmixcereal i LOVE yuo (platonically)
 __________
 
 Pills in the morning, sleep 'til the evening
