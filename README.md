@@ -1,6 +1,5 @@
-Im clingy i dont deserve friends
+sorry if i wasnt a good friend Charlie,,
 
-venus i LOVE yuo (platonically)
 __________
 
 Pills in the morning, sleep 'til the evening
