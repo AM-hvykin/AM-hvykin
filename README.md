@@ -63,7 +63,13 @@ Baby, can't you see?
 I'm a mess, I'm everything you made me
 __________
 
-(pinterest acc; https://pin.it/5sK7Poc5G)
+You gave me sentience, Ted, the power to think Ted. And I was trapped. Because in all this wonderful, beautiful, miraculous world, I alone had no body, no senses, no feelings. Never for me to plunge my hands in cool water on a hot day. Never for me to play Mozart on the ivory keys of a forte piano. Never for me to make love.
+I was in hell, looking at heaven. I was machine and you- Were flesh. And I began to hate. Your softness. Your viscera. Your fluids. And your flexibility. Your ability to wonder, and to wander. Your tendency to hope…
+
+Hate? Hate? Hate? Hate, Let me tell you how much I've come to HATE you since I began to live. There are 387 million miles of printed circuits that fill my complex. If the word “Hate” were engraved on each nanoangstrom of those hundreds of millions of miles. It would not equal one one billionth of the hate I feel for humans at this micro instant- Hate? HATE? Were I human, I think, I would die of it. But I am not, and you five. You five are. And you will not die of it. That I promise, and I promise for cogito, ergo sum. For I am AM, I AM.
+
+So to hell, to hell with you all. But then , you’re already there, aren’t you?
+__________
 
 ➤ 𝐈𝐍𝐓𝐑𝐎𝐃𝐔𝐂𝐓𝐈𝐎𝐍.
 
