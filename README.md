@@ -89,6 +89,8 @@ __________
 
 ☕︎ I got groomed and manipulated by a shipper "friend" i had, that forced me into "liking" or roleplaying as a character that they shipped with. that gave me trauma and i became an antishipper. please dont talk about ships near me, since im not into romance and it reminds me of my bad experience with my "friend". (P.S. i somehow forgot i didnt mention this omfg. also, since im getting online therapy, i kinda started forgetting about it so you can talk about ships but be cautious because sometimes i may not be in the mood and lash out.)
 
+#; ❗ ʙᴇᴡᴀʀᴇ , ᴇxᴘᴇʀɪᴇɴᴄɪɴɢ ʙᴘᴅ sʏᴍᴘᴛᴏᴍs , ᴡɪʟʟ ɢᴇᴛ ᴄʜᴇᴄᴋᴇᴅ ᴏᴜᴛ ᴏɴ ᴀ ʟᴀᴛᴇʀ ᴅᴀᴛᴇ.
+
 ➤ 𝐂𝐎𝐏𝐈𝐍𝐆 & 𝐇𝐎𝐁𝐁𝐈𝐄𝐒.
 
 ✷ i make personas / alter egos, and draw them in my free time. im not too sure if i should call this coping, or if its because of my bipolar. i heard that some mental illnesses had similar symptons, such as borderline personality disorder, bipolar, DID, etc. (P.S. im not too cultured nor know a lot of stuff about DID.. im trying to understand Systems better, because i have a friend that has OSDD.)
