@@ -1,3 +1,8 @@
+#; 🙄 ᴘʟᴇᴀsᴇ ᴘᴀʏ ᴀᴛᴛᴇɴᴛɪᴏɴ ᴛᴏ ᴜᴘᴄᴏᴍɪɴɢ ᴅʀᴀᴍᴀ ☟ 
+
+theres a female telamon in ponytown with the name msi - personal jesus that took inspiration from me without me consenting, since they didnt ask. the skin they stole inspo from was my vent telamon persona, and me and my friend did confront them. they said they wouldnt delete it because "it took way too long", so i decided to copy their style as payback. again, this is justified in my point of view. they also harassed me and meowed at me in whispers which made me uncomfortable, and they said "ok." when i told them i got uncomfortable. theyre also mocking religion with their name and again refused to change it when i kindly asked. please either refrain from this ponytown player or report them for my own sake.
+__________
+
 #; ⚠️ ᴡᴀʀɴɪɴɢ! ᴛʜɪs ᴜsᴇʀ ʜᴇᴀᴠɪʟʏ ᴋɪɴs ᴄʜᴀʀᴀᴄᴛᴇʀs ᴛʜᴀᴛ ᴍᴀʏ ʜᴀᴛᴇ ʜᴜᴍᴀɴs / ᴇᴠᴇʀʏᴏɴᴇ (but isnt actually THAT hateful xoxo). ɪɴᴛᴇʀʀᴀᴄᴛ ᴡɪᴛʜ ᴄᴀᴜᴛɪᴏɴ.
 
 __________
